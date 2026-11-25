@@ -1,4 +1,4 @@
-## Hi there 👋
+## U.S. Army Vet | UAS Technical & Piloting Experience | Homeland Security Studies | Public Admin & Public Policy | Comptia Tech+ & A+ Certified | Local AI Creator
 
 <!--
 **ragemodevixen/ragemodevixen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

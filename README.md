@@ -1,4 +1,4 @@
-## # I'm RET SPC Love, Amber
+## I'm RET SPC Love, Amber
 
 ### U.S. Army Veteran | Homeland Security Studies | Cybersecurity & IT | UAS Technology | AI Development
 
